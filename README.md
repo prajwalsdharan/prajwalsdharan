@@ -5,5 +5,5 @@
 - 👯 I’m looking to collaborate on ... Any awesome stuffs
 - 💬 Ask me about ... Tech, Investments
 - 📫 How to reach me: ... prajwalsdharan@gmail.com or just call me at +91-9663539347
-- 😄 Pronouns: ... Mr. 
+- 😄 Pronouns: ... he , him 
 - ⚡ Fun fact: ... You gotta buy me a coffee!
